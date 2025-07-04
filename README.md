@@ -1,0 +1,1 @@
+Week 2 submissions for the Blogging & Content Strategy Internship at Cosmicode. This week's focus was on niche selection, content planning, SEO keyword research, and building a structured content pillar strategy for a blog on Mental Health Awareness. Includes one full blog post, content calendar, strategy outline, and research-based planning work.
