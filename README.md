@@ -1,0 +1,2 @@
+This week focused on making blogs SEO-friendly and rankable. I learned how to structure blog posts using title tags, meta descriptions, headings, and keywords, as well as how to conduct a basic SEO audit to identify areas for improvement. Tasks included writing two optimized blog posts, summarizing key on-page SEO elements, creating an SEO-focused content plan with 10 blog title ideas, and analyzing an existing blog for SEO performance.
+
